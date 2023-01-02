@@ -1,4 +1,4 @@
-## Shake Alarm Clock: Privacy policy
+## Shake Alarm Clock: Privacy policy For all
 
 Welcome to the Shake Alarm Clock app for Android!
 
